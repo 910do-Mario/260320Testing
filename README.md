@@ -6,3 +6,15 @@ Branch Editor:Linux910do-Mario
 
 Hello!
 from your good neighbor ;))
+
+
+       /.--.\
+      / -  - \
+     |   ω    |
+   _ /`------'\ _
+  /  \________/  \
+ |  /          \  |
+ | |            | |
+  \ \__________/ /
+   \____________/
+       WW  WW
